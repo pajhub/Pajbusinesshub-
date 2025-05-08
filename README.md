@@ -28,7 +28,7 @@ If you'd like to contribute to the project:
 ## Contact
 
 - WhatsApp: 09123885451  
-- Email: info@pajbusinesshub.com (optional)
+- Email: officialpajbusinesshub@gmail.com(optional)
 
 ---
 
